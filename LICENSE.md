@@ -1,4 +1,4 @@
-
+stealth king legacy Script offers the most advanced king legacy Script, with god mode and infinite resources. Perfect for dominating any match.
 
 
 
